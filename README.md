@@ -14,5 +14,4 @@ Why not stop by the protest and remind Tuolumne County that we should:
 ## Support 2nd Amendment Rights for African Americans
 ## Stand Against Racism
 ## Stand Against Fascism
-## Support the Freedom of Religionuntangling ourreligious beliefs from our governance
 ## Stand Against Hate
