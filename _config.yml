@@ -1,6 +1,6 @@
 title: Tuolumne Lumber Jubilee
 theme: jekyll-theme-minimal
-google-analytics: UA-170807108-1
+google_analytics: UA-170807108-1
 logo: https://www.visittuolumne.com/images/eventimages/TLJ66.jpg
 github:
   is_project_page: false
