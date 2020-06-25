@@ -1,10 +1,10 @@
 # Black Lives Matter
 
 
-71st Tuolumne Lumber "Protest"
-Sunday 6/28/2020
-Tuolumne Memorial Park
-Tuolumne, California 95379
+71st Tuolumne Lumber "Protest"  
+Sunday 6/28/2020  
+Tuolumne Memorial Park  
+Tuolumne, California 95379  
 
 9am - Tuolumne Community Baptist Service  
 9am-10am - Late sign ups  
