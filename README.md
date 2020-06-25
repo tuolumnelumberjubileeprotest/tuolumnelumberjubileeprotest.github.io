@@ -7,7 +7,7 @@
 9am-10am - Late sign ups  
 11am-6pm - Protest  
 
-Why not stop by the protest and remind Tuoulumne County that we should:
+Why not stop by the protest and remind Tuolumne County that we should:
 
 ## Defund the Police
 ## Support Justice for All
